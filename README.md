@@ -1,0 +1,2 @@
+# premium-glass-fusing-001-glass-fusing-kiln-formed-art
+Tired of sticky notes covered in kiln schedules and scattered sketches that never make it to the final fuse? Your glass studio deserves a command center, not a junk drawer.  The Glass Fusing &amp; Kiln-Formed Art Design Studio Notion Template replaces chaos with clarity. It's the only studio manager built for glass artists—track firing ramps, catalog g
